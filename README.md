@@ -1,1 +1,0 @@
-# traitemant_image
